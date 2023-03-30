@@ -1,4 +1,4 @@
-![Foto_personal](sofi-profe.png)
+![Foto_personal](diseño sin titulo.png)
 
 Mi nombre es
 # Sofia Ambrosino
